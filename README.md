@@ -1,0 +1,1 @@
+’m an embedded systems enthusiast who turns advanced technology into practical solutions. With deep experience in software and hardware, I tackle challenges and create systems that have a real impact. I’m always exploring and working on new projects. Let’s connect if you’re up for discussing tech ideas or sharing insights!
