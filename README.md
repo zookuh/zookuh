@@ -1,1 +1,1 @@
-I’m an embedded systems enthusiast who turns technology into practical solutions. With a background in computer engineering and experience in software and hardware engineering, I tackle challenges and create systems that have a valuable impact. I approach projects from the ground up, emphasizing production, growth, and creativty. I’m always exploring and working on new projects on a journey to contribute to the advancing digital world. 
+
